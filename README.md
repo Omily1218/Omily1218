@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding 
 - 🌱 I’m currently learning 3d art and vis basic
 - 💞️ I’m looking to collaborate on development
-- 📫 How to reach me email
+- 📫 How to reach me: email
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm a TADC fan :)
 
